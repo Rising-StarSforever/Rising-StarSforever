@@ -71,9 +71,7 @@
  
  𝖈𝖔𝖒𝖊 𝖇𝖎𝖊𝖓!, 𝖑𝖊𝖘 𝖉𝖊𝖏𝖔 𝖆𝖑𝖌𝖚𝖓𝖔𝖘 𝖘𝖔𝖚𝖓𝖉𝖙𝖗𝖆𝖈𝖐𝖘 𝖉𝖊 𝖘𝖔𝖓𝖎𝖈 𝖖 𝖒𝖊 𝖊𝖓𝖈𝖆𝖓𝖙𝖆𝖓.
 
-[Escuchar (raw)](https://744569-jean-paul-makhlouf.mp3.pm/song/150210702-reach-for-the-stars-sonic-colors/)
-
-https://www.zophar.net/music/sega-mega-drive-genesis/sonic-knuckles
+[Escuchar (raw)](https://27877796-sonic-frontiers.mp3.pm/song/210385782-i-m-here/)
           
            𝖕𝖔𝖘𝖉𝖆𝖙𝖆; 𝖓𝖚𝖓𝖈𝖆 𝖑𝖊 𝖉𝖊𝖘 𝖈𝖑𝖎𝖈𝖐 𝖆 𝖒𝖆𝖙𝖎𝖆𝖘....                               
 
