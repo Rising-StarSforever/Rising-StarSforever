@@ -14,15 +14,15 @@
  
  
  
- 
-![3D Hat Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/2956e16d-a98e-4cae-a677-a07388f6097c)
+ ![3D Hat Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/29159a48-ab95-4ef7-82e3-6456361b7b7e)
+
 
                                                    𝕯𝖔𝖓𝖉𝖊 𝖙𝖊 𝖊𝖓𝖈𝖚𝖊𝖓𝖙𝖗𝖆𝖘?
 
 * 𝕸𝖊 𝖊𝖓𝖈𝖚𝖊𝖓𝖙𝖗𝖔 𝖊𝖓 𝖊𝖑 𝖘𝖆𝖋𝖊 𝖘𝖊𝖗𝖛𝖊𝖗 (𝖊𝖘𝖕), 𝖊𝖓 𝕰𝖑 𝖋𝖆𝖓𝖉𝖔𝖒 𝖉𝖊 "𝕾𝕿𝕳",𝖔𝖍 𝖊𝖓 𝖑𝖆 𝖈𝖆𝖋𝖊𝖙𝖊𝖗𝖎𝖆. 𝕾𝖚𝖊𝖑𝖔 𝖊𝖘𝖙𝖆𝖗 𝖆𝖋𝖐, 𝖙𝖊 𝖕𝖎𝖉𝖔 𝖖𝖚𝖊 𝖙𝖊𝖓𝖌𝖆𝖘 𝖕𝖆𝖈𝖎𝖊𝖓𝖈𝖎𝖆 𝖆 𝖑𝖆 𝖍𝖔𝖗𝖆 𝖉𝖊 𝖍𝖆𝖇𝖑𝖆𝖗𝖒𝖊. 
 
+![Sonic 3 Dancing Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/3cbebd5d-a3da-4cec-b1c5-5bca813b48db)
 
-![Sonic 3 Dancing Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/19f0a126-99c9-4d26-ba92-0e4b7e927790)
 
                                                     𝕮𝖔𝖘𝖆𝖘 𝖘𝖔𝖇𝖗𝖊 𝖒𝖎
 * 𝕮𝖔𝖒𝖔 𝖕𝖚𝖊𝖉𝖊𝖘 𝖛𝖊𝖗 𝖆𝖒𝖔 𝖆 𝖐𝖓𝖚𝖝,𝖕𝖔𝖗 𝖊𝖓𝖉𝖊 𝖊𝖘 𝖒𝖎 𝖕𝖊𝖗𝖘𝖔𝖓𝖆𝖏𝖊 𝖋𝖆𝖛.
@@ -37,7 +37,9 @@
 
 * 𝖄 𝖕𝖔𝖗 𝖚𝖑𝖙𝖎𝖒𝖔, 𝖘𝖎 𝖘𝖎𝖊𝖓𝖙𝖊𝖘 𝖖𝖚𝖊 𝖙𝖊 "𝖈𝖔𝖕𝖎𝖊", 𝖋𝖆𝖛𝖔𝖗 𝖉𝖊 𝖉𝖊𝖈𝖎𝖗𝖒𝖊𝖑𝖔, 𝖓𝖔 𝖖𝖚𝖎𝖊𝖗𝖔 𝖙𝖊𝖓𝖊𝖗 𝖒𝖆𝖑 𝖊𝖓𝖙𝖊𝖓𝖉𝖎𝖉𝖔𝖘. (𝕸𝖊 𝖑𝖔 𝖕𝖚𝖊𝖉𝖊𝖘 𝖉𝖊𝖈𝖎𝖗 𝖊𝖓 𝖕𝖙, 𝖔 𝖊𝖓 𝖊𝖑 𝖉𝖎𝖘𝖈𝖔𝖗𝖉 𝖖𝖚𝖊 𝖊𝖘𝖙𝖆 𝖊𝖓 𝖒𝖎 𝖕𝖊𝖗𝖋𝖎𝖑, 𝖊𝖓 𝖑𝖔𝖘 𝖊𝖓𝖑𝖆𝖈𝖊𝖘.)
 
-![Sonic 3 3D Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/7963c829-9b8d-4668-807b-e9545eeab9b6)
+![Sonic 3 3D Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/991d5640-ab3d-48ac-a5f6-980c4f1f8a38)
+
+
 
 
 
@@ -46,7 +48,10 @@
                                               𝕻𝖊𝖗𝖘𝖔𝖓𝖎𝖙𝖆𝖘 𝖖𝖚𝖊 𝖖𝖚𝖎𝖊𝖗𝖔 𝖒𝖚𝖈𝖍𝖔
 
 
-![Sega Knuckles Sticker by Sonic the Hedgehog](https://github.com/user-attachments/assets/2dc6942a-6271-4b1e-a1c1-b67fb451aa97)
+![Sega Knuckles Sticker by Sonic the Hedgehog](https://github.com/user-attachments/assets/db4800e5-409a-4447-84bb-bd85adf256da)
+
+
+
 
 * 𝒵𝓊𝓁𝓎 (Sara).
 
@@ -59,8 +64,8 @@
  
                                    𝕲𝖆𝖗𝖈𝖎𝖆𝖘 𝖕𝖔𝖗 𝖑𝖊𝖊𝖗, 𝖖𝖚𝖊 𝖕𝖆𝖘𝖊𝖘 𝖚𝖓𝖆 𝖑𝖎𝖓𝖉𝖔 𝖉𝖎𝖆, 𝖓𝖔𝖈𝖍𝖊, 𝖔 𝖙𝖆𝖗𝖉𝖊.
 
+![3D Motorcycle Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/4eb200f7-e043-4ce5-858e-3f034cfa2f96)
 
-![3D Motorcycle Sticker by Sonic The Hedgehog](https://github.com/user-attachments/assets/37070d3e-edcf-42d5-892c-7e4e18b94abe)
 
 
  
